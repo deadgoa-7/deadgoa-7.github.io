@@ -8,7 +8,5 @@ _My animations are linked on my Patreon._
 
 I need to credit Cr33p3r Jpg for his help and support. 
 
-[Here is his channel:]
-
-(https://www.youtube.com/channel/UCiY_7GnYn6BcmOa6xRgpgZg)
+[Here is his channel:](https://www.youtube.com/channel/UCiY_7GnYn6BcmOa6xRgpgZg)
 
